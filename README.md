@@ -1,4 +1,4 @@
-### Soy Javie Luna Reyes 👋
+### Hi dear 👋
 
 <!--
 **XHXENON/XHXENON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
